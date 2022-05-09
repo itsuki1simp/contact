@@ -1,1 +1,1 @@
-## https://itsuki1simp.github.io
+## https://itsuki1simp.github.io/contact
